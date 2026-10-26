@@ -6,3 +6,4 @@
 
 🚀 I enjoy learning new technologies, tackling challenges, and turning ideas into real projects. My goal is to keep growing as a developer and build creative, innovative solutions.
 
+Linkedin: www.linkedin.com/in/rodrigo-porto-b22092447/
